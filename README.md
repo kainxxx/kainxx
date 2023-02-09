@@ -1,0 +1,2 @@
+# kainxx
+kainxxx.ru blog
